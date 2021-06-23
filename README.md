@@ -1,9 +1,7 @@
 
 MAXCRACK MOD
 
-Vercion 2.0
-
-minecraft vercion 1.17
+Vercion 2.NO ME AGO RESPONSABLE SI TU PC SE MUERE
 
 ESTA EN FACE BETA
 
