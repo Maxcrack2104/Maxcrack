@@ -1,6 +1,4 @@
 
-Hola
-
 MAXCRACK MOD
 
 Vercion 2.0
