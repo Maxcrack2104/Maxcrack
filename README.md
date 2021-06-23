@@ -1,6 +1,12 @@
+
 Hola
+
 MAXCRACK MOD
+
 Vercion 2.0
+
 minecraft vercion 1.17
+
 NO ME AGO RESPONSABLE DE NADA 
+
 ESTA EN FACE BETA
